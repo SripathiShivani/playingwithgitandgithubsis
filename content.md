@@ -8,6 +8,6 @@
 1. I like Hershey's
 2. My Fav Movie is Malli Malli idhi rani roju.
 
-### Sudha Bro's
+### Sudha's
 1. he likes puppies my dog name is buddies.
-2. his fav movie is arundati
+2. his fav movie is arundati.
