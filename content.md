@@ -9,5 +9,9 @@
 2. My Fav Movie is Malli Malli idhi rani roju.
 
 ### Sudha's
-1. he likes puppies my dog name is buddies.
+1. he likes puppies, his dog is named buddies.
 2. his fav movie is arundati.
+
+### Buddy:
+1. He likes ICECREAM CAKE.
+2. By the way he is a puppy.
